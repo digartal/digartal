@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @digartal
-- 👀 I’m interested in photography
+- 👀 I’m interested in photography and drone imagery
 - 🌱 I’m currently learning video production
 - 💞️ I’m looking to collaborate on artworks
 - 📫 How to reach me digartal@outlook.com
